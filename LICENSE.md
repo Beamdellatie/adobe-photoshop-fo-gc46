@@ -1,4 +1,4 @@
-
+vip Adobe Photoshop for macOS Extension | export to SVG + layer styles offers the most advanced Adobe Photoshop for macOS extension, with export to SVG and layer styles. Ideal for
 
 
 
